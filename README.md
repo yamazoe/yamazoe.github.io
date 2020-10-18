@@ -1,0 +1,1 @@
+# yamazoe.github.io
